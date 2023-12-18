@@ -1,0 +1,1 @@
+is a part of the [[cerebral cortex]] involved in the comprehension of written and spoken language

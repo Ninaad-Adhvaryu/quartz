@@ -1,0 +1,1 @@
+- [ ] How to use [Excel data](https://docs.google.com/spreadsheets/d/1lHSOp2G6MF_Pk7uOY29ols55H3RarpM_Ew2dODUR8R0/edit?exids=71471469,71471463#gid=0)? 

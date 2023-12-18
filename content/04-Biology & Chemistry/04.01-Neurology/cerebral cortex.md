@@ -1,0 +1,1 @@
+is the outer layer of neural tissue of the cerebrum of the brain in humans and other mammals

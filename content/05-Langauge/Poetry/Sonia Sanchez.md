@@ -1,0 +1,5 @@
+Sonia Sanchez is an influential African American poet, playwright, and professor who emerged as a prominent figure in the Black Arts Movement. Born in 1934 in Birmingham, Alabama, she is celebrated for her contributions to literature, activism, and education.
+
+She is most known for her powerful poetry, which often addresses themes of black identity, social justice, and the struggles of the African American community. Her works resonate with themes of racial injustice, feminism, and the human experience. Some of her notable poetry collections include "Homecoming," "We a BaddDDD People," and "Shake Loose My Skin."
+
+Sanchez's influence extends beyond her literary contributions. She was deeply involved in the Civil Rights Movement and Black Arts Movement of the 1960s and 1970s, collaborating with prominent figures such as [[Malcolm X]], Amiri Baraka, and other activists and artists advocating for racial equality and social change.

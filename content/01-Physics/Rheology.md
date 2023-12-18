@@ -1,0 +1,1 @@
+Study of the flow of matter, primarily in a fluid state. Can also apply to "soft solids". It is a field of physics that deals with the deformation and flow of materials, both solids and liquids. 

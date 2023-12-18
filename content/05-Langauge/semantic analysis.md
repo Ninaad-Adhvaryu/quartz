@@ -1,0 +1,1 @@
+In [[Linguistics]], semantic analysis is the process of relating syntactic structures, from the levels of words, phrases, clauses, sentences and paragraphs to the level of the writing as a whole, to their language-independent meanings.

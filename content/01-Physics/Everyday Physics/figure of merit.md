@@ -1,0 +1,1 @@
+is a performance metric that characterize the performance of a device, system, or method
